@@ -1,0 +1,1 @@
+# NOVY-NAPAD-8-LEKCE
